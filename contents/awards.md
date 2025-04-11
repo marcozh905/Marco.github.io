@@ -1,3 +1,9 @@
-- 校级一等奖学金, 2022.  
-
-- Outstanding Graduation Thesis, XXX University, 2023. 
+- Div 1 ISSFHK 800m C grade record holder (2:12.45)
+- Div 1 HKSSF 2024/2025 800m Bronze
+- Div 1 ISSFHK 2024/2025 800m Gold
+- Div 1 ISSFHK 2024/2025 4x400 Silver
+- Div 1 ISSFHK Tennis Bronze
+- Div 1 ISSFHK 2023/2024 800m Gold
+- Div 1 ISSFHK 2023/2024 4x400 Gold
+- Div 1 ISSFHK 2022/2023 800m Gold
+- Div 1 ISSFHK 2022/2023 Football Gold
